@@ -10,4 +10,4 @@ anybody can use the codes provided im happy to share .
 
 
 
-juts give me credit please .
+just give me credit please .
